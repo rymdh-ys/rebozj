@@ -3,7 +3,7 @@
 热播之家是一个提供全网影视剧免费在线观看的平台，累计收录约10万余部影视资源。用户可以在该网站上观看国内外的电影、电视剧、综艺、动漫、短剧、纪录片等多种类型的影视内容。网站界面简约，功能模块清晰，虽然有少量广告，但不影响操作，整体浏览体验良好。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14408.html" target="_blank" ><strong>热播之家最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
